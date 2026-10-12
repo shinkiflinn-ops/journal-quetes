@@ -1,1 +1,1 @@
-# journal-quetes
+# durant mes 12 semaines je dois avoir déja évoluer sur mon niveau en anglais et ma prise de paroles avoir evoluer dans mons compte tiktok et completer toute la grille des plans du 12s et augmenter mon niveau en game design
